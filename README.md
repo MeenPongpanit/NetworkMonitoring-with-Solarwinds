@@ -13,4 +13,4 @@
 
 ## 🔗 Links
 * Link to Document : [Click!](https://docs.google.com/document/d/1GIhQn8uVWBO-Jf1iWlZbaSrn7rp2wp0cye7_nBwxXHM/edit?fbclid=IwAR3NScEIx41oGAgH_aYY0PDbOpX8HYnUj7b4P_n0DsWi1eYSnSmZqvFiQr4)
-* Link to Video : [Click!]()
+* Link to Video : [Click!](https://youtu.be/d2stvaY08EE)
